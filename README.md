@@ -7,3 +7,5 @@ https://github.com/AlfredoMellox7
 E minha comida favorita é qualquer uma que minha esposa fizer, tirando aqueles bolos de caneca que nunca dão certo, mas as outras são ótimas .
 
 Gabriel Fernandes Baltazar Github gab40028922  ou pelo link https://github.com/Gab40028922
+
+Vinicio dos Santos Oliveira, github VinicioSantosOliveira ou pelo link: https://github.com/VinicioSantosOliveira
