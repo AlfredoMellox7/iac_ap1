@@ -10,3 +10,5 @@ https://github.com/AlfredoMellox7
 Gabriel Fernandes Baltazar Github gab40028922  ou pelo link https://github.com/Gab40028922
 
 Vinicio dos Santos Oliveira, github VinicioSantosOliveira ou pelo link: https://github.com/VinicioSantosOliveira
+
+Alteraçoes feitas por Amanda Serena .
