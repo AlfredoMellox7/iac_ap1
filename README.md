@@ -11,4 +11,4 @@ Gabriel Fernandes Baltazar Github gab40028922  ou pelo link https://github.com/G
 
 Vinicio dos Santos Oliveira, github VinicioSantosOliveira ou pelo link: https://github.com/VinicioSantosOliveira
 
-Alteraçoes feitas por Amanda Serena .
+Amanda Serena, github AmandaSSerena ou pelo link: https://github.com/AmandaSSerena
