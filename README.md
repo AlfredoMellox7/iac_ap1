@@ -2,7 +2,7 @@
 
 Trabalho em equipe da aula de Introdução a Computação .
 
-A equipe contém os seguintes integrantes :
+A equipe contém os seguintes integrantes e como encontrá-los  :
 
 Alfredo Mello gerenciando o projeto, sendo seu Github Alfredo Mello ou pelo link :
 https://github.com/AlfredoMellox7
